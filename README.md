@@ -1,1 +1,0 @@
-# soluciondigitalrominapro.gibhub.io
